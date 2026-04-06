@@ -12,3 +12,6 @@ I’m currently working on to make India independent in terms of Science and tec
 [![](https://visitcount.itsvg.in/api?id=@AdityaDKGupta&icon=9&color=11)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<p align="center">
+    <i>“Trying is much better than doing nothing!”</i>
+</p>
