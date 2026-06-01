@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently working on to make India independent in terms of Science and technology.<br>I’m looking for help with cutting through the insane amount of government bureaucracy that’s slowing down humanity.<br>I’m currently leaning about the Artificial General Intelligence (AGI).<br>Fun fact: I Build stuffs.
+I’m currently working on to make India independent in terms of Science and technology.<br>I’m looking for help with cutting through the insane amount of government bureaucracy that’s slowing down humanity.<br>I’m currently working on my project.<br>Fun fact: I Build stuffs.
 
 
 ## 🌐 Socials:
